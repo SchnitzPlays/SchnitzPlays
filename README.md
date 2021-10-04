@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SchnitzPlays
+- 👀 I’m interested in ethical hacking!
+- 🌱 I’m currently learning linux
+- 📫 How to reach me 𝒮𝒸𝒽𝓃𝒾𝓉𝓏𝑒𝓁𝒫𝓁𝒶𝓎𝓈#4402 <--- Discord!
